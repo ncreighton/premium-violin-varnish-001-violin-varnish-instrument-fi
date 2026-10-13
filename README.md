@@ -1,0 +1,2 @@
+# premium-violin-varnish-001-violin-varnish-instrument-fi
+Tired of varnishes that crack, sag, or turn muddy? Stop guessing and start formulating like a 17th-century Cremonese master with the systematic chemistry behind every perfect instrument finish.  This Chemistry Lab isn't a single recipe—it's a modular framework that teaches you how to balance resin, oil, solvent, and pigment to achieve any color, ha
